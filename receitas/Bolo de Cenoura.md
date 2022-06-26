@@ -34,3 +34,4 @@ Serve **1 porção**
 
 1. Em uma panela, adicione o leite condensado, o achocolatado e a margarina **Doriana**. Cozinhe em fogo baixo até a mistura engrossar e ficar em ponto de brigadeiro mole, cerca de 10 minutos depois. Cubra com plástico filme e espere esfriar por completo;
 2. Desenforme o bolo, espalhe a cobertura de brigadeiro sobre o bolo e sirva em seguida.
+
